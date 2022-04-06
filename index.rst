@@ -2,7 +2,7 @@
 
 *Mỹ thuật Hoàng Đức vẽ tranh tường, tranh sơn dầu toàn quốc. Với đội ngũ hoạ sĩ đào toạ bài bản nhiều kinh nghiệm, các công trình của chúng tôi được khách hàng đánh giá cao.*
 
-*Địa chỉ: 124 Minh Khai, Hai Bà Trưng, Hà Nội*
+*Địa chỉ: Ngõ 29 Khương Hạ, Phường Khương Đình, Quận Thanh Xuân, Hà Nội*
 
 *SDT: 0962604887*
 
